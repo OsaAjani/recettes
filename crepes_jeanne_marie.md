@@ -1,4 +1,5 @@
 # Crèpes de Jeanne-Marie (livre de Mme. de Saint Ange)
+Pour environ 12 crèpes.
 
 ## Cuisson :
 Dans des poêles en acier noir, avec une noix de beurre pour la première crèpe.
