@@ -11,7 +11,7 @@ Dans des poêles en acier noir, avec une noix de beurre pour la première crèpe
 5. 5g de sel.
 6. 2 cuillères à café d'eau de fleur d'oranger (à tripler).
 7. 2 cuillères à café de rhum (à tripler). 
-8. Un peu de vanille.
+8. (Pas dans l'original) Un peu de vanille.
 
 
 ## Préparation :
