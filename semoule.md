@@ -1,7 +1,7 @@
 # Semoule au lait au four
 
 ## Cuisson :
-Dans un plat au four à 200°C grill. Pour le temps c'est à l'oeil.
+Dans un plat au four à 240°C grill. Pour le temps c'est à l'oeil.
 
 ## Ingrédients :
 1. 1 litre de lait
