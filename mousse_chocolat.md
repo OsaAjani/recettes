@@ -15,5 +15,4 @@
 4. Battre les blancs en neige avec le sucre
 5. Incorporer 1/3 des blancs en neige à la maryse pour casser
 6. Incorporer délicatement le reste des blancs en neige
-
-
+7. Filmer (pas au contact) et mettre au frigo 3h.
