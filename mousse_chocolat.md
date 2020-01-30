@@ -5,7 +5,7 @@
 2. 20g de sucre
 3. 1 jaune d'oeufs
 4. 5 blancs d'oeufs
-5. Rhum & 1/2 c.à.c de café soluble
+5. 1 c.à.s Rhum & 1/2 c.à.c de café soluble
 
 
 ## Préparation :
