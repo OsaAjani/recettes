@@ -2,7 +2,7 @@
 
 ## Ingrédients :
 1. 125g de chocolat
-2. 20g de sucre
+2. 30g de sucre
 3. 1 jaune d'oeufs
 4. 5 blancs d'oeufs
 5. 1 c.à.s Rhum & 1/2 c.à.c de café soluble
@@ -13,6 +13,6 @@
 2. Faire fondre le chocolat
 3. Mélanger le chocolat fondu au jaune d'oeuf
 4. Battre les blancs en neige avec le sucre
-5. Incorporer 1/3 des blancs en neige à la maryse pour casser
+5. Incorporer 1/3 des blancs en neige à la maryse pour casser. Bien racler le fond et obtenir un mélange totalement homogène quitte à faire retomber les oeufs.
 6. Incorporer délicatement le reste des blancs en neige
 7. Filmer (pas au contact) et mettre au frigo 3h.
