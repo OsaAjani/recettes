@@ -3,9 +3,9 @@
 ## Ingrédients :
 1. 125g de chocolat
 2. 50g de sucre
-3. 1 jaune d'oeufs
+3. 2 jaune d'oeufs
 4. 5 blancs d'oeufs
-5. 1 c.à.s Rhum & 1/2 c.à.c de café soluble
+5. 2 c.à.s Rhum & 1/2 c.à.c de café soluble
 
 
 ## Préparation :
