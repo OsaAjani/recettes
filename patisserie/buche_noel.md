@@ -3,6 +3,7 @@ Pour 1 buche
 
 ## Conseils
 Préparer le gateau au moins 1 ou 2 jours à l'avance.
+Il semblerait que la buche soit meilleure sortie un peu à l'avance pour revenir à temperature.
 
 ## Réalisation & Assemblage
 Il faut disposer d'une génoise froide (idéalement préparée la veille) et d'une crème au beurre juste faite.
@@ -33,7 +34,7 @@ On réalisera la génoise un peu à l'avance pour qu'elle ai le temps de refroid
 - 1 cuillère à café de levure chimique
 
 ## Cuisson :
-30 minutes, chaleur tournante, 180°C, à mi-hauteur.
+Environ 30 minutes, chaleur tournante, 180°C, à mi-hauteur, finir à 160°C.
 En plantant un couteau il doit ressortir propre, puis prolonger la cuisson de quelques minutes pour éviter que la génoise retombe.
 
 ## Préparation :
