@@ -1,5 +1,7 @@
 # Nuggets de poulet
 
+>[image](../images/nuggets_poulet.jpg)
+
 ## Remarques :
 À préparer la veille.
 
