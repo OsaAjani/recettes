@@ -1,4 +1,4 @@
-# Meuringues
+# Meringues
 ## Ingrédients :
 1. 1 blanc d'oeuf 
 2. 50g de sucre
