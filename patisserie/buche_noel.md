@@ -62,7 +62,7 @@ Pour 1 buche. On réalisera la crème au moment de monter la buche.
 
 ## Préparation :
     1. Battre les jaunes (juste pour les casser) dans un bol de robot avec un fouet.
-    2. Dans une casserole réaliser un sirop avec l'eau et le sucre. Cuire le sucre au "petit boulé".
+    2. Dans une casserole réaliser un sirop avec l'eau et le sucre. Cuire le sucre au "petit boulé" (112 à 117°C).
     3. Quand le sucre est au petit boulé, verser le sirop chaud sur les oeufs et mettre immédiatement le robot en marche à très haute vitesse. Il faut réaliser cette étape immédiatement pour cuire les oeufs sans les faire coaguler.
     4. Laisser le robot en marche jusqu'à ce que le mélange et refroidi.
     5. Ajouter le beurre au mélange petit à petit jusqu'à obtenir un mélange homogène.
