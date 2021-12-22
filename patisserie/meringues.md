@@ -1,7 +1,7 @@
 # Meringues
 ## Ingrédients :
 1. 1 blanc d'oeuf 
-2. 50g de sucre
+2. 50g de sucre + un peu de poudre de vanille.
 3. Une pincée de sel
 
 ## Préparation :
