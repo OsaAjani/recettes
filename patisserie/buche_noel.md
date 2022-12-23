@@ -54,11 +54,11 @@ En plantant un couteau il doit ressortir propre, puis prolonger la cuisson de qu
 Pour 1 buche. On réalisera la crème au moment de monter la buche.
 
 ## Ingrédients :
-- 3 jaunes d'oeufs
-- 150g de sucre
-- 38g d'eau
-- 150g de beurre
-- 2 cuillères à soupe de kirsch
+- 4 jaunes d'oeufs
+- 200g de sucre
+- 50g d'eau
+- 200g de beurre
+- 2-3 cuillères à soupe de kirsch
 
 ## Préparation :
     1. Battre les jaunes (juste pour les casser) dans un bol de robot avec un fouet.
