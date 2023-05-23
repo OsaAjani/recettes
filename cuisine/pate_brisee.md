@@ -1,8 +1,8 @@
 # Pâte brisée 
 
 ## ingrédients 
-- 100g farine
-- 50g beurre
+- 150g farine
+- 75g beurre
 - un peu d'eau 
 - une pincée de sel
 
