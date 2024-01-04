@@ -59,6 +59,9 @@ Pour 1 buche. On réalisera la crème au moment de monter la buche.
 - 50g d'eau
 - 200g de beurre
 - 2-3 cuillères à soupe de kirsch
+  
+## Remarque :
+On peut adapter les proportions pour 5 oeufs à la place pour avoir un ratio crème au beurre/buiscuit plus proche de 50/50.
 
 ## Préparation :
     1. Battre les jaunes (juste pour les casser) dans un bol de robot avec un fouet.
