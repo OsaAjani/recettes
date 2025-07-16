@@ -1,9 +1,10 @@
 # Glace à la vanille
 ## Ingrédients :
 1. 50cl de lait
-2. 180g de sucre
-3. 6 jaunes d'oeufs
-4. Vanille (+ pointe de rhum optionnelle) 
+2. 25cl de creme
+3. 180g de sucre
+4. 6 jaunes d'oeufs
+5. Vanille (+ pointe de rhum optionnelle) 
 
 ## Conseil :
 Refroidir la cuve de la turbine un peu à l'avance, utiliser un mélange eau + sel
