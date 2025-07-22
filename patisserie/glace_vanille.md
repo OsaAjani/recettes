@@ -12,12 +12,11 @@ pour mieux transmettre le froid.
 
 
 ## Préparation :
-1. Mélanger lait + 90g de sucre + vanille et porter jusqu'à fremissement.
+1. Mélanger lait + crème + 90g de sucre + vanille et porter jusqu'à fremissement.
 2. Blanchir 6 jaunes et 90g de sucre.
 3. Verser le lait sur chaud sur les jaunes et le sucre.
 4. Remettre au feu en remuant en permanence, pour épaissir légèrement (comme une crème anglaise).
-5. Retirer du feu, et ajouter la crème.
-6. Mettre à la turbine.
+5. Mettre à la turbine.
 
 ## Bonus :
 Ajouter des pépites de chocolat ou du chocolat concassé, les batons de boulanger marchent très bien !
