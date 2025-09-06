@@ -4,7 +4,7 @@
 - 200 g de farine  
 - 12 g de levure chimique (environ 1 sachet)  
 - 1 pincée de sel  
-- 15 g de sucre  
+- 30 g de sucre  
 - 300 ml de lait  
 - 1 œuf  
 - 40 g de beurre fondu  
